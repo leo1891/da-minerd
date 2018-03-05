@@ -1,0 +1,2 @@
+# da-minerd
+Minjmg
